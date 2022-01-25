@@ -13,4 +13,5 @@ ooking after small children, guarding the pack,
 stealinng chimkin when the little human isn't looking
 
 FAVORITES:  balls and catsxy
+blankets and sunshine
 
